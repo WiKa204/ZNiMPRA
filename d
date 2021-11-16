@@ -1,1 +1,3 @@
 Zmiany przez użytkownika A
+Zmiany
+Zmiany ...
