@@ -1,1 +1,1 @@
-Zmiany przez user B
+Zmiany przez użytkownika B
